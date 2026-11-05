@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **prateekchoudhary88105@gmail.com**
 
-- ⚡ Fun fact **I think i am distracted.**
+- ⚡ Fun fact **We know todays action decide your tommorow still we want focus our todays actions.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
